@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+<h1>How To Measure For Half Chaps</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-measure-for-half-chaps/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Customer Service</a></li><li><a href="#toc-1">Mountain Horse</a></li><li><a href="#toc-2">Do Spurs Go Under Or Over Half Chaps?</a></li><li><a href="#toc-3">Using Show Jackets</a></li><li><a href="#toc-4">Quick Chap Sizing</a></li><li><a href="#toc-5">Griptek Half Chap 2 0 Size Chart</a></li><li><a href="#toc-7">Perris Leather Half Chaps Measurement Chart</a></li><li><a href="#toc-8">The Means To Measure For The Best Fit Of Harley</a></li></ul></div>
+<p>To put your half chaps on, simply slip your foot into the elastic stirrup at the bottom of the chap. You should at all times ride in a boot with a heel in order that your foot can't slip through the stirrup iron, putting you vulnerable to being dragged when you fall off. Chaps are meant to guard the legs of cowboys from contact with every day environmental hazards seen in working with cattle, horses and different livestock. They help to protect riders' legs from scraping on brush, injury from thorns of cacti, sagebrush, mesquite and different thorny vegetation. The zipper is on the skin rear of the leg as a outcome of that is where it is most protected against wind and rain. A good fit within the thigh can be should you can fit your hand between your thigh and the chaps leg.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>We thank you and appreciate your endurance while we catch up on our returns processing. We are slowed down because of COVID-19 and staffing constraints. We expect returns and refunds to take days for processing once the package is obtained at our Massachusetts warehouse. You will obtain an e mail notification when your return has been processed. If you need us to make the knee to your actual measurement then we'll, but you have to inform us to take action.</p>
+<h2 id="toc-0">Customer Service</h2>
+<p>Half-chaps are usually attached with a zipper, hook, or Velcro working alongside the calf for closure. The TackHack doesn't warrant or confirm the representations of the manufacturers. We perceive that equestrian sizing is all round the map. That’s why we offer useful tips to discover simply the proper dimension suit your tack and attire.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What are gaiters?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>A gaiter is a material guard that covers the hole between your trousers and your strolling boots. Try to assume of a gaiter as wanting like a cut-off sleeve with an attached loop on one finish designed to simply hook underneath your boot heel by a strap. The high half then wraps round your ankle or calf.</p></div>  </div></div>
+<p>Half chaps are normally easier to suit than tall boots and don’t require much of a break-in period, so they're usually more snug than tall boots, particularly when first bought. Once you've determined how usually you will be utilizing chaps for horseback driving, the subsequent important thing is to research the durability of the half chaps you plan to buy. More frequent usage means that you will want horse driving chaps which are robust enough to last more, and likewise maintain the harshness of robust climate situations. They also wants to be appropriate to ride on tough terrains, and capable to keep your legs heat and dry.</p>
+<h3 id="toc-1">Mountain Horse</h3>
+<p>The type most frequently seen within the low-to-middle value ranges is suede with a pleated elasticized panel over the calf that enables a slim, firm outline. The predominance of this elastic panel, even in economic system chaps, means you do not have to decide on hook-and-loop tabs over zippers in order to make certain they? True horse lovers are out riding, rain or shine, with out query. You want the proper gear on those wet days to keep you dry and comfortable, so waterproof horse riding boots are a must. Here are some of our favorites that we’re certain you’ll love, too.</p>
+<ul><li>They maintain the rider's pants from flying up or twisting by stopping chafing and friction attributable to saddle leathers.</li><li>Elastic strap that goes under your foot retains them securely in place.</li><li>AK Half Chaps are provided in many designs with totally different supplies and sizes to give you customized contoured fit along with elegant look.</li><li>If you’re selecting a tall boot that is made of very gentle leather-based or that is boxy in minimize close to the ankle, enable for more drop to happen within the boot.</li><li>Chaps are worn to support cowboys' thighs from the dangers of working with cattle, horses, and other livestock frequently.</li></ul>
+<p>Worn with paddock boots, they're snug enough to leave on all day. To measure, you need to be carrying denims and riding boots. Measure round your leg just under the bend of the knee. Measure around your calf about 7" down from the bend of the knee . Measure round your ankle with your boots on. A long shall be 1" longer than a regular.</p>
+<h2 id="toc-2">Do Spurs Go Under Or Over Half Chaps?</h2>
+<p>The third level comes to our seam size, put on your driving boot and measure from your belting point to down final to the floor. Let’s start with unzipped and unsnapped each legs of the chaps. Use your proper hand, maintain the higher half of the chaps between the lacing and the back of the best thigh.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Can you present in half chaps?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>While you would possibly have to personal a pair of tall boots for exhibiting, as half chaps aren't legal at most recognized exhibits and occasions, you can prolong your expensive boots' life with out sacrificing your feel by doing all your everyday riding in half chaps.</p></div>  </div></div>
+<p>EGO 7 Lyra Half Chaps By Tucci ($195) — Premium boot maker Tucci pulled out all the stops with the Ego 7 Lyra Half Chaps. They have a distinctive and chic styling and fit, and EGO 7’s soft leather-based is enhanced with an E-TEX inside calf panel. This half chap is delicate, form-fitting, highly durable, water resistant, and will not stain your saddle. Perri’s Leather provides top-quality leather-based products made within the USA. They offer half chaps in grownup and youngster sizes that are made with an eco-friendly process.</p>
+<h3 id="toc-3">Riding Show Jackets</h3>
+<p>Custom chaps provide a distinctive look with quite so much of colours, fringe, and details. Secondly come to the waist, whatever your waist size is presently simply add three to 4 inches extra to get fitted leather chaps. If they are fitted too loose then they will twist, get baggy, unpleasant and wear badly. The most necessary area for a very cosy fit is around the calf area. There is always slightly extra room wanted in the ankle space to allow for flexion. When measuring for chaps it's normally best to have someone else measure for you.</p>
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-measure-for-half-chaps/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>They will hug your leg from knee to ankle with the particular stretch leather-based formed panel that will provide you with a custom match. If you respect Grand Prix's high quality, then that is the driving half chap for you. Leave the tape as loose as you need the chaps to fit.</p>
